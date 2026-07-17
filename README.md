@@ -3,3 +3,4 @@
 
 $${{\color{#51418D}\Large{\textsf{SHIP ROLEPLAYS DNI\}}}}$$
 
+$${{\color{#51418D}\Large{\textsf{Status meaning\}}}}$$
