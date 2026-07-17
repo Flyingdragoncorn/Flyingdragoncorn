@@ -5,4 +5,4 @@ $${{\color{#51418D}\Large{\textsf{SHIP ROLEPLAYS DNI\}}}}$$
 
 $${{\color{#51418D}\Large{\textsf{Status meaning\}}}}$$
 
-$${{\color{#51418D}\Large{\textsf{🌙 - Afk\}}}}$$
+$${{\color{#51418D}\Large{\textsf{Away - Afk, whispers are needed\}}}}$$
