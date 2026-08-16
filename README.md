@@ -12,3 +12,5 @@ $${{\color{#5172BF}\Large{\textsf{Busy - Actively doing something else, like sle
 $${{\color{#503B86}\Large{\textsf{Looking for chat - Wanting to talk🪼ྀིྀི\}}}}$$
 
 $${{\color{#3E3286}\Large{\textsf{Still, feel free to int even if I'm busy or afk⋆.ೃ࿔*:･\}}}}$$
+
+$${{\color{#51418D}\Large{\textsf{━━━━⊱⋆⊰━━━━\}}}}$$
