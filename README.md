@@ -4,7 +4,7 @@
 $${{\color{#51418D}\Large{\textsf{Pony town's Medic !! confirmed  by @pt-walk-of-fame\}}}}$$
 
 
-$${{\color{#51418D}\Large{\textsf{Status meaning⤵︎\}}}}$$
+$${{\color{#51418D}\Large{\textsf{Status meaning ↓\}}}}$$
 
 $${{\color{#6B98D9}\Large{\textsf{Away - Afk°‧🫧⋆.ೃ࿔\}}}}$$
 $${{\color{#5172BF}\Large{\textsf{Busy - Actively doing something else, like sleeping, making skins or drawing⋆\}}}}$$
