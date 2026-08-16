@@ -3,7 +3,6 @@
 
 $${{\color{#51418D}\Large{\textsf{Pony town's Medic !! confirmed  by @pt-walk-of-fame\}}}}$$
 
-$${{\color{#51418D}\Large{\textsf{SHIP ROLEPLAYS DNI\}}}}$$
 
 $${{\color{#51418D}\Large{\textsf{Status meaning\}}}}$$
 
