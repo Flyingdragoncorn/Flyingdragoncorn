@@ -14,5 +14,6 @@ $${{\color{#503B86}\Large{\textsf{Looking for chat - Wanting to talk🪼ྀི�
 $${{\color{#3E3286}\Large{\textsf{Still, feel free to int even if I'm busy or afk⋆.ೃ࿔*:･\}}}}$$
 
 $${{\color{#3E3286}\Large{\textsf{If I don’t respond its bc i didn’t realise you whispered\}}}}$$
+$${{\color{#3E3286}\Large{\textsf{I will try to respond as soon as I can though \}}}}$$
 
 $${{\color{#51418D}\Large{\textsf{━━━━⊱⋆⊰━━━━\}}}}$$
